@@ -1,4 +1,4 @@
-<h3 align="center">https://tenor.com/view/yakuza-opinion-rejected-ichiban-absolutely-obliterating-an-innocent-citizen-gif-24570806</h3>
+<h3 align="center">What's pooping</h3>
 
 - 🌱 I’m currently learning **Javascript, Java**
 
@@ -9,4 +9,3 @@
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
-
