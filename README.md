@@ -4,7 +4,7 @@
 
 - 💬 Ask me about **anything Terraria related**
 
-- 📫 How to reach me **BYCE#7645 Discord**
+- 📫 Reach me on Discord at **BYCE#7645**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
