@@ -5,7 +5,3 @@
 - 💬 Ask me about **anything Terraria related**
 
 - 📫 Reach me on Discord at **BYCE#7645**
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
