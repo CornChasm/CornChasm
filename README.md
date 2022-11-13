@@ -1,7 +1,4 @@
 <h3 align="center">What's pooping</h3>
-
-- 🌱 I’m currently learning **Javascript, Java**
-
-- 💬 Ask me about **anything Terraria related**
-
-- 📫 Reach me on Discord at **BYCE#7645**
+It do be like it do, Scooby dooby Doo
+Learning Javascript & Java I guess
+Discord at **BYCE#7645**
