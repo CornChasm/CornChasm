@@ -3,6 +3,6 @@ It do be like it do, Scooby dooby Doo <br>
 Learning Javascript & Java I guess <br> 
 # BYCE#7645
 
-![](https://media.tenor.com/e1TQGj_2hGkAAAAC/burger-bussin.gif)
+![](https://media.tenor.com/uqDNFL83d7cAAAAC/fridge-dissapointed.gif)
 
-![](https://media.tenor.com/_tH7-RYJy8AAAAAC/yakuza-kang.gif)
+![](https://media.tenor.com/EE1SLJuxBL4AAAAd/cry-about-it-cry.gif)
