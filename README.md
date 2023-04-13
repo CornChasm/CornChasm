@@ -5,4 +5,4 @@ Learning Javascript & Java I guess <br>
 
 ![](https://media.tenor.com/uqDNFL83d7cAAAAC/fridge-dissapointed.gif)
 
-![](https://media.tenor.com/EE1SLJuxBL4AAAAd/cry-about-it-cry.gif)
+![](https://media.discordapp.net/attachments/369924551502594048/824157860317102100/Die.gif)
