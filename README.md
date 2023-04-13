@@ -4,3 +4,5 @@ Learning Javascript & Java I guess <br>
 # BYCE#7645
 
 ![](https://media.tenor.com/e1TQGj_2hGkAAAAC/burger-bussin.gif)
+
+![](https://media.tenor.com/_tH7-RYJy8AAAAAC/yakuza-kang.gif)
